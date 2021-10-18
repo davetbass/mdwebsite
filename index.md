@@ -12,4 +12,5 @@ Our Misson Statement:
 
 CEO Frederick Farnsworth
 
-![DaveT](https://user-images.githubusercontent.com/76665491/137649216-eec87646-222c-466a-b7f0-d3582c76fa12.jpg)
+
+![FRED](https://user-images.githubusercontent.com/76665491/137814671-524bd317-8130-4812-b280-eb16b156ee18.jpg)
