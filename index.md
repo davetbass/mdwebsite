@@ -3,6 +3,8 @@ Cape Cod Coyote Conservation Committee
 
 
 
+![COYOTE](https://user-images.githubusercontent.com/76665491/137653151-3937b366-0af7-4d99-b8c3-a28d93f3cd12.jpg)
+
 
 Misson Statement:
 
