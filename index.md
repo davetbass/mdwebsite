@@ -1,4 +1,13 @@
-#Cape Cod#
+Cape Cod Coyote Conservation Committee
+
+
+
+
+
+Misson Statement:
+
+To defend and protect these enegetic clever and misunderstood animals
+
 
 
 
